@@ -2,7 +2,7 @@
 - My name is ( Mitchel )
 
 
-- I’m interested in way to much, Like \#Art
+- I’m interested in way to much, Like \#Art, #\Prompts 
 - I’m currently learning [presingnal betting]
 
 
